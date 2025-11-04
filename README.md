@@ -3,7 +3,7 @@
 - 📫 How to reach me:
 - https://stackoverflow.com/users/1137508/cj-nimes
 - https://es.stackoverflow.com/users/16804/cj-nimes
-- https://www.instagram.com/imaginalario
+- https://www.instagram.com/imaginalario.art
 - https://www.reddit.com/user/Tiancris
 
 <!---
